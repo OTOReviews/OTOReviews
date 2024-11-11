@@ -6,22 +6,22 @@ ALL Flicker OTO LINKS BELOW
 OTOs Don’t Work If You Don’t Have Front End, Can Get Any 1 Or More OTOs From Below If Already Got Front End!
 
 Flicker FE
->>> [Grab The Early Bird Offer](https://warriorplus.com/o2/a/y78ssyw/0)
+[Grab The Early Bird Offer](https://warriorplus.com/o2/a/y78ssyw/0)
 
 OTO 1: PRO Version – $32.9
->>>Grab The Early Bird Offer
+[Grab The Early Bird Offer](https://warriorplus.com/o2/a/y78ssyw/0)
 
 OTO 2: Enterprise Version – $62.9
->>>Grab The Early Bird Offer
+[Grab The Early Bird Offer](https://warriorplus.com/o2/a/y78ssyw/0)
 
 OTO 3: Done-For-You (DFY) Package – $39
->>>Grab The Early Bird Offer
+[Grab The Early Bird Offer](https://warriorplus.com/o2/a/y78ssyw/0)
 
 OTO 4: Reseller License – $197
->>>Grab The Early Bird Offer
+[Grab The Early Bird Offer](https://warriorplus.com/o2/a/y78ssyw/0)
 
 OTO 5: IMX Bundle – $97
->>>Grab The Early Bird Offer
+[Grab The Early Bird Offer](https://warriorplus.com/o2/a/y78ssyw/0)
 
 What Is Flicker App?
 
@@ -186,4 +186,15 @@ I've launched my own streaming platform, featuring original content that I creat
 
 
 If you're a content creator, a filmmaker, or just someone who wants to tell stories, I highly recommend giving Flicker a try. It's a game-changer.
+
+Flicker Bonus
+REMEMBER! If you buy this product through my link, you can also get these huge bonuses (Please remember that these bonuses are not for the TRIAL or FREE versions)
+
+You can have an opportunity to receive extra bonuses if you finish 2 steps below:
+
+♦ Step 1: Order the product by [Clicking here](https://warriorplus.com/o2/a/y78ssyw/0)
+
+♦ Step 2: After your purchase goes through, email your receipt to me at inbeereviewbonus@gmail.com so I can confirm your purchase and email you information about how to access to your bonus material.
+
+»»Special Exclusive Bonuses««
 
