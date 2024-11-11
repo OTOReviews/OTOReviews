@@ -170,7 +170,7 @@ Why Should You Choose Flicker App?
 As someone who's always been passionate about storytelling, I've always dreamed of creating my own movies and TV shows. But the technical hurdles and high costs were always daunting. That is, until I discovered Flicker.
 
 
-What I Love About Flicker:
+**What I Love About Flicker:**
 
 
 AI Magic: It's like having a personal AI assistant that can generate stunning visuals, write captivating scripts, and compose epic soundtracks.
